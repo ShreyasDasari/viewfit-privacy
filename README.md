@@ -1,0 +1,1 @@
+# viewfit-privacy
